@@ -2,12 +2,13 @@
 
 I am a computer science major at CSUF and I plan on graduating in 2029.
 
+
 #Favorite CPSC 120L Labs
+
 
 Lab 4 part 1
 
 Describe why this is your favorite lab and what I liked about it (Erase later)
-
 
 
 Lab 7 part 2
