@@ -11,11 +11,11 @@ Lab 4 part 1
 Describe why this is your favorite lab and what I liked about it (Erase later)
 
 
-Lab 7 part 2
+Lab 7 part 1
 
 Describe why this is your favorite lab and what I liked about it (Erase later)
 
-Lab 10 part 1
+Lab 10 part 2
 
 Describe why this is your favorite lab and what I liked about it (Erase later)
 
